@@ -1,5 +1,5 @@
-# HNSXTheAlienBoyComic
-## HNS x The Alien Boy Comic 
+# HNSXTAB
+## Handshake x The Alien BoyNFT
 ## 🤝 x 👽
 
 ***
